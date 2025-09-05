@@ -1,1 +1,2 @@
-https://static.wikia.nocookie.net/4b17ea57-b61a-4a87-b556-a85ba28dad40/scale-to-width/755
+
+![asgore-asgore-runs-over-dess](https://github.com/user-attachments/assets/8fb54293-2873-4f81-ac3d-33fd12698e07)
